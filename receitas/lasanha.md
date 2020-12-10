@@ -28,7 +28,7 @@
 
 5. #### **_Frango_**
 
-6. Cozinhe o peito de frango em água (sem óleo), após cozido,[ desfie-o.](https://blog.tudogostoso.com.br/dicas-de-cozinha/como-desfiar-frango-na-panela-de-pressao/)
+6. Cozinhe o peito de frango em água (sem óleo), após cozido, desfie-o.
 
 7. Pique a cebola em pedaços pequenos, coloque em uma panela e doure com a manteiga.
 
